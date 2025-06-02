@@ -1,0 +1,1 @@
+Knock knees, also known as genu valgum, is a type of knee alignment seen when a child (or adult) stands up straight with their knees together, but their feet and ankles stay apart. The opposite type of alignment, called bow legs (genu varum), is when someone stands with their feet and ankles together, and there is a gap between the knees.
